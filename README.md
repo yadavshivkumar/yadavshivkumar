@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **werk.shiv@gmail.com** For Collaboration/Project or Anythi
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🔗 I am a Content Creator. 😊😊
-Stay updated with the latest tutorials and projects by subscribing to my YouTube channel and following on Instagram, Facebook and Twitter.
+Stay updated with the latest tutorials and projects by subscribing to my YouTube channel and following on Instagram, Facebook and Twitter (X).
 
 
 ## 🌐 Socials:
